@@ -1,2 +1,2 @@
 Zima, holoda,
-Vse kak budto izo lda ...
+Vse kak budto izo lda ..
